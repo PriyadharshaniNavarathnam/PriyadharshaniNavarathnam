@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Computer Engineering at University Of Jaffna**
 
-- 💬 Ask me about **Android**
+- 💬 Ask me about **Languages**
 
 - 📫 How to reach me **praba00021@gmail.com**
 
